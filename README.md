@@ -1,0 +1,2 @@
+# Rama-resoulsi
+resolusi
